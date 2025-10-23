@@ -1,1 +1,1 @@
-Welcome to my profile yay
+Welcome to my profile
